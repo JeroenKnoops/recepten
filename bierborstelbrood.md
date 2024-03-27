@@ -21,7 +21,7 @@
 1. Haal het deeg uit de kom en maak er een mooi bolletje van. Druk voorzichtig de lucht eruit.
 1. Leg het deeg in een rijstmandje (of terug in de kom), dek het weer af en laat het nog een hele tijd (1-2 uur) rijzen.
 1. Verwarm de oven voor op 250 graden en zet er een braadpan met deksel in.
-1. Als de over op temperatuur is, doe de deksel van de pan. Doe een beetje bloem in de pan en leg het deeg er voorzichtig in. Snij een paar lijntjes in de bovenkant van het brood en doe de deksel terug op de pan (dutch oven).
+1. Als de oven op temperatuur is, doe de deksel van de pan. Doe een beetje bloem in de pan en leg het deeg er voorzichtig in. Snij een paar lijntjes in de bovenkant van het brood en doe de deksel terug op de pan (dutch oven).
 1. Zet de pan terug in de oven op 250 graden voor 30 minuten.
 1. Haal de deksel na 30 minuten eraf en zet de oven op 180 graden.
 
