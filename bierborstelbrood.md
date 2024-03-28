@@ -17,7 +17,7 @@
 1. Voeg na 3 minuten ongeveer het zout toe en laat het nog eventjes (7 minuten) door mixen.
 1. Pak een kom en doe er een klein laagje zonnebloemolie in.
 1. Doe het deeg in de kom en dek het af met een vershoudfolie, natte handdoek of douchemuts.
-1. Laat het deeg zo’n 75 minuten rijzen. Vouw elke 30 minuten het deeg dubbel zodat we wat lucht bij het deeg komt.
+1. Laat het deeg zo’n 75 minuten rijzen. Vouw elke 30 minuten het deeg dubbel zodat er wat lucht bij het deeg komt.
 1. Haal het deeg uit de kom en maak er een mooi bolletje van. Druk voorzichtig de lucht eruit.
 1. Leg het deeg in een rijstmandje (of terug in de kom), dek het weer af en laat het nog een hele tijd (1-2 uur) rijzen.
 1. Verwarm de oven voor op 250 graden en zet er een braadpan met deksel in.
