@@ -23,7 +23,7 @@
 1. Verwarm de oven voor op 250 graden en zet er een braadpan met deksel in.
 1. Als de oven op temperatuur is, doe de deksel van de pan. Doe een beetje bloem in de pan zodat het niet vast plakt en leg het deeg er voorzichtig in. Snij een paar (2 a 3) lijntjes in de bovenkant van het brood van ongeveer 5 mm diep. Doe de deksel terug op de pan (dutch oven).
 1. Zet de pan terug in de oven op 250 graden voor 30 minuten.
-1. Haal de deksel na 30 minuten eraf en zet de oven op **180 graden**. LET OP! Vergeet niet de oven lager te zetten, want anders verkoold het brood. 
+1. Haal de deksel na 30 minuten eraf en zet de oven op **180 graden**. Last dit nog een minuut of 30 staan. LET OP! Vergeet niet de oven lager te zetten, want anders verkoold het brood. 
 
 Geniet ervan!
 
