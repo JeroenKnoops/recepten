@@ -14,7 +14,7 @@
 ## Recept
 
 1. Meng alle ingredienten met het water in een standmixer op het zout en zonnebloemolie na.
-1. Voeg na 3 minuten ongeveer het zout toe en laat het nog eventjes (7 minuten) door mixen.
+1. Voeg na ongeveer 3 minuten het zout toe en laat het nog eventjes (7 minuten) door mixen.
 1. Pak een kom en doe er een klein laagje zonnebloemolie in.
 1. Doe het deeg in de kom en draai het deeg een keer om dat er overal een laagje zonnebloemolie op zit. Dek het af met een vershoudfolie, natte handdoek of douchemuts.
 1. Laat het deeg zo’n 75 minuten rijzen. Vouw elke 30 minuten het deeg dubbel zodat er wat lucht bij het deeg komt.
