@@ -19,7 +19,7 @@
 1. Doe de suikers bij elkaar en klop de eieren er doorheen.
 1. Brokkel de koekjes in een grote schaal.
 1. Optioneel: Smelt de partjes chocolade an bain marie.
-1. Schep de boter (afgehoeld) door de suiker en eieren.
+1. Schep de boter (afgekoeld) door de suiker en eieren.
 1. Schep de 2 el cacaopoeder er door heen.
 1. Optioneel: Voeg de lepel whiskey toe!.
 1. Optioneel: Voeg de partjes chocolade toe!
