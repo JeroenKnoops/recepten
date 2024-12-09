@@ -12,4 +12,4 @@ Recepten
 
 ## Kiptiii
 
-- [Kiptiii](./kiptiii.md)
+- [Kiptiii](./kiptiii.md) - Recept van Tinus.
